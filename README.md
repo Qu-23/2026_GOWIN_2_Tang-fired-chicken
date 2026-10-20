@@ -1,1 +1,1 @@
-# 2026_GOWIN_2_Tang-fired-chicken
+# 2026_GOWIN_2_Tang-fried-chicken
